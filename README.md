@@ -6,7 +6,7 @@ I'm a Front end developer, UI designer and passionated about human behavior. Eve
 
 If you are looking for a dedicated, hard-working and a focused on UX coder, feel free to contact me.
 
- parkerleo90@gmail.com
+ 📩 parkerleo90@gmail.com
 
 ### Find me all around the web:
 
