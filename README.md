@@ -1,6 +1,6 @@
 ## Hi there, I'm Leandro Rocha Leite - 
 
-![](https://github.com/Leandro-Rleite/Leandro-Rleite/blob/main/los-angeles-kings-south-park.gif)
+![](https://c.tenor.com/2h7enlv6ZWMAAAAd/streets-of-rage-streets-of-rage4.gif)
 
 I'm a Front end developer, UI designer and passionated about human behavior. Everyday I seek to create awesome experiences through well developed user interfaces. I'm 25 years old, living in São Paulo, Brazil.
 
