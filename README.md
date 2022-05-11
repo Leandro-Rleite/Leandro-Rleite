@@ -1,4 +1,4 @@
-## Hi there, I'm Leandro Rocha Leite - 
+## Hi there, I'm Leandro Rocha Leite - 🛹 💻 ✝️
 
 ![](https://c.tenor.com/2h7enlv6ZWMAAAAd/streets-of-rage-streets-of-rage4.gif)
 
