@@ -2,9 +2,9 @@
 
 ![](https://c.tenor.com/2h7enlv6ZWMAAAAd/streets-of-rage-streets-of-rage4.gif)
 
-I'm a Front end developer, UI designer and passionated about human behavior. Everyday I seek to create awesome experiences through well developed user interfaces. I'm 25 years old, living in São Paulo, Brazil.
+I'm a junior developer. Everyday I seek to create awesome experiences through well developed user interfaces. I'm 31 years old, living in São Paulo, Brazil.
 
-If you are looking for a dedicated, hard-working and a focused on UX coder, feel free to contact me.
+If you are looking for a dedicated, hard-working, feel free to contact me.
 
  📩 parkerleo90@gmail.com
 
