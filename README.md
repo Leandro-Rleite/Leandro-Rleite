@@ -1,6 +1,6 @@
 ## Hi there, I'm Leandro Rocha Leite - 
 
-![](https://github.com/leonardo-martin/leonardo-martin/blob/main/images/cyberpunk1.gif)
+![](https://github.com/Leandro-Rleite/Leandro-Rleite/blob/main/los-angeles-kings-south-park.gif)
 
 I'm a Front end developer, UI designer and passionated about human behavior. Everyday I seek to create awesome experiences through well developed user interfaces. I'm 25 years old, living in São Paulo, Brazil.
 
